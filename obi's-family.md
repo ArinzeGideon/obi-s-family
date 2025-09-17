@@ -4,7 +4,7 @@
 2. Obi Arinze
 3. Obi Davide
 4. Obi Anita
-5. Precious
+5. Obi Precious
 
 ## Tabie for obi's grand cildren
 
